@@ -19,7 +19,7 @@ Acercar la Inteligencia Artificial a las personas y negocios de forma **simple, 
 ---
 
 ## 📫 Contacto
-- Instagram: [@zentrai_](https://instagram.com/zentrai_)  
+- Instagram: [@zentrai.ia](https://instagram.com/zentrai.ia)
 - Email: contacto@zentrai.com  
 
 ---
